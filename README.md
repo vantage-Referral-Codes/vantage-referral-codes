@@ -1,6 +1,8 @@
 
 The online trading space is growing rapidly, and brokers like Vantage are helping traders access global markets with powerful tools, tight spreads, and flexible account options. Whether you’re just starting out or already experienced, choosing the right broker can make a big difference in your trading journey.
-The best part? You can unlock added benefits right from the start by using the Vantage Referral Code: xM8Qz4r0 when signing up.
+The best part?
+You can unlock added benefits right from the start by using the Vantage Referral Code: xM8Qz4r0 when signing up.
+
 🌟 Why Use the Vantage Referral Code?
 Using a referral code isn’t just a small bonus—it can enhance your overall trading experience.
 Here’s what you gain with code xM8Qz4r0:
